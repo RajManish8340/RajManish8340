@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **AI and Quantum machine learning**
 
-- 📫 How to reach me **rajmanishsahu1121@gmail.com**
+- 📫 How to reach me **rajmanishsahu1121@gmail.com** ,**rajmanishsahu8340@gmail.com**
 
 <p align="left">
 </p>
